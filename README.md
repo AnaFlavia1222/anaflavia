@@ -9,4 +9,5 @@ Minha especialização vai ser em estética
 Gosto de tatuagens
 
 
-https://media1.tenor.com/m/YxXn07ofanQAAAAC/patrick-star-in-love.gif
+![](https://media1.tenor.com/m/YxXn07ofanQAAAAC/patrick-star-in-love.gif)
+
